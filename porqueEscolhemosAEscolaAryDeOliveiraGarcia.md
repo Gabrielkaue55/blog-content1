@@ -1,7 +1,9 @@
 ---
-title:" Porque escolhemos a escola Ary de Oliveira Garcia"
-date:"2024-02-26"
+title: "Porque escolhemos a escola Ary de Oliveira Garcia"
+date: "2024-02-26"
 ---
+
+
 Temos o prazer de anunciar que selecionamos a  escola Ary de Oliveira Garcia como o local ideal para conduzir nossa pesquisa. Esta decisão foi baseada em uma série de considerações cuidadosas, incluindo a conveniência para os membros de nossa equipe, três dos quais são alunos desta instituição.
 
 Optamos por esta escola por causa da presença de três membros de nosso grupo que já são estudantes aqui. Essa escolha se revelou benéfica para facilitar a realização de nossa pesquisa. Além disso, nossa decisão foi fortalecida pela calorosa recepção que recebemos por parte dos funcionários da escola. Desde o início, eles têm demonstrado uma hospitalidade excepcional e prontamente se ofereceram para nos auxiliar em nosso projeto de pesquisa.
